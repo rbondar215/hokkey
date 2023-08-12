@@ -1,1 +1,1 @@
-cutting belt own member replace longer spread tall coast thick body hello lay trouble lack
+because word percent game rich told five speech huge meant rain equipment fifteen worry select
