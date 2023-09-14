@@ -1,1 +1,1 @@
-satellites nervous boat sang green example we you planning research work nest strong brief gain
+gave begun yes higher touch correct trace fog dirt married work tank biggest importance consonant
