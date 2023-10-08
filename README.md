@@ -1,1 +1,1 @@
-graph remain equator appearance becoming explain invented president parts colony lie excellent silence gate helpful
+certain more applied between work inside hundred talk caught bush send mile stopped importance action
