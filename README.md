@@ -1,1 +1,1 @@
-win believed learn white zero mine worried chief tube snow apple flight quick slip care
+audience search mix nodded nearer greatly small dear spoken establish poem telephone but show having
