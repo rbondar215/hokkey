@@ -1,1 +1,1 @@
-trip out rough born coat nuts taught became broke use fed flies wild stove bend
+jump fur usually struck classroom loose children beneath paint skin can character bean breakfast noon
