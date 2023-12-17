@@ -1,1 +1,1 @@
-private band on softly trunk exact accurate globe separate so shinning near paid gulf musical
+clay exercise wear chart front bright cry her object pleasure bad gift nest smallest perfect
