@@ -1,1 +1,1 @@
-classroom equal wild car brown fall bill bend keep town avoid load almost directly tribe
+hold essential happy screen pictured review sing replied opposite stand apple poor brave cat ants
