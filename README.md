@@ -1,1 +1,1 @@
-very surrounded studied show good harder traffic tin tent without oxygen effort paper rule apart
+short explain accident trail mine yellow give hearing positive step fifth land hope collect sand
